@@ -16,6 +16,7 @@ INFO:
 -Theres a reason he disabled "Issues" on his repositories, so noone can talk to him after he scams.
 -He sometimes refuses to give out the discord as hes pissing hes pants.
 -A huge red sign could be that he is giving "lifetime" cheats claiming they are "custom built, and undetected" for cheap prices.
+-He cant even spell out "External" properly, and you expect him to be a proper coder lol
 
 
 Some Threads about him scamming: 
